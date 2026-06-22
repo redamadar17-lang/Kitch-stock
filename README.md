@@ -1,1 +1,0 @@
-# Kitch-stock
